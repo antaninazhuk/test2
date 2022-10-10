@@ -1,1 +1,1 @@
-https://antaninazhuk.github.io/rsschool-cv/cvgi
+https://antaninazhuk.github.io/rsschool-cv/cv
